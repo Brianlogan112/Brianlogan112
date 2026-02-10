@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on project 
 - 📫 How to reach me its_brian_logan on ig
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: no fun fact
+- ⚡ Fun fact: I like football
 
 <!---
 Brianlogan112/Brianlogan112 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
